@@ -11,8 +11,3 @@ belajar bareng cc
 misalkan 
 fsdfsd
 
-dfsd
-
-dfsd
-
-dfsd
