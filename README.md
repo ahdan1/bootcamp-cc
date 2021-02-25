@@ -11,3 +11,8 @@ belajar bareng cc
 misalkan 
 fsdfsd
 
+kjfkdfsdfsd
+
+fsdfs
+
+gfdsdffsd
